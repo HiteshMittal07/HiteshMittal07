@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am curious Blockchain Developer , learning new skills and exploring new technologies ongoing in industry is one of my favorite thing
+Curious Blockchain Dev 🌐 | Learning tech trends 🚀 | React aficionado 💻 | Crafting full-stack solutions 🔧 | Exploring endless possibilities 🌟
 
 
 ## 🌐 Socials:
